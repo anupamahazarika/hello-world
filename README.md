@@ -6,4 +6,5 @@ readme-edits
 
 Helloo HOOMANS!
 
-I've had pizzas on moon and found that they taste a lot better here 
+
+nice to meet you. ok bye now.
